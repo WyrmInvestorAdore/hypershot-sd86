@@ -1,4 +1,4 @@
-#  
+#  hypershot secure Scripts offers the most advanced hypershot Script, with anti-ban and aimbot. Perfect for dominating any match.
 
 
 
